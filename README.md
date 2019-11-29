@@ -8,9 +8,3 @@ Version 3:  And slowly read, and dream of the soft look
 
 Version 4: 1231231
 Version 4: 1231231
-Version 2:  And nodding by the fire, take down this book,
-
-Version 3:  And slowly read, and dream of the soft look
-
-Version 4: 1231231
-Version 4: 1231231
